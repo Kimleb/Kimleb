@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kimleb
 - 👀 I’m interested in creating a computer software 
-- 🌱 I’m currently learning Business information technology 
+- 🌱 I’m currently studyng  Business information technology 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me kimleb64@gmail.com 
 

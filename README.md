@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Kimleb
 - 👀 I’m interested in creating a computer software 
 - 🌱 I’m currently studyng  Business information technology 
-- 💞️ I’m looking to collaborate on creating a record census software 
 - 📫 How to reach me kimleb64@gmail.com also you can reach me via whatsapp{+254708253778)
 
 

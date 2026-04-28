@@ -6,5 +6,6 @@
 - 💻 Interested in cybersecurity, secure systems, and building impactful software solutions  
 - 📫 Reach me: **kimleb64@gmail.com**  
 - 📱 WhatsApp: **+254708253778**
+- Linkedin - https://www.linkedin.com/in/caleb-kimutai-864630267
 
 
